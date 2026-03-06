@@ -1,2 +1,2 @@
 # My_portfolio1
-It is the portfolio made by me
+One of my goals is to be better of a soccer player
